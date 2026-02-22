@@ -1,2 +1,1 @@
-# plugins-files
-а э ну эта t.me/jettax_plugins/f
+https://docs.google.com/presentation/d/1GfsyN23mgBqXvPLDoefibqzNvkUYbM-a/edit?slide=id.g367da43da04_7_550#slide=id.g367da43da04_7_550
